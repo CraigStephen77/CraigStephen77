@@ -7,10 +7,9 @@ I am okay with it turning me into the soul and spirit which I am proud of more t
  I now am a better, stronger/passionate person than I ever would of been if I had not walked in such a
 Way as I have plus witnessed much more than words could describe. I am , well have been successful in
 Leaving the rubbish behind without me being any chance of living my life with any satisfaction whatsoever
- If I didn't step back into the same world 🌎 and make a difference in ways I once had almost completely lost
-Any hope of...
-
-- 👀 I’m interested in ... starting, in near future, My own entrepreneurial thingy I have been working,
+ If I didn't step up and utilise my skills asap I am sure I would of been unsuccessful in reaching any
+places of what is NOW some what an easier task and I'm not the slightest bit concerned about the out come!
+- 👀 I’m interested in the very near future, My own entrepreneurial thingy I have been working,
 And waiting on for too long already! The World created awesome things which too many times go unnoticed?
    Actually I am okay saying that I have nailed it finally,the potential I possess
 I never have taken for granted mind you. But I am okay with the following statement of
